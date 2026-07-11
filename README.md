@@ -1,5 +1,6 @@
-### bello
-![Letter to you](/assets/images/Letter.png)
+<p align="center">
+<img width="400" height="700" alt="Letter" src="https://github.com/user-attachments/assets/a89ab92a-2079-4862-a216-c13cf6dad6ed" />
+</p>
 
 [Here they are](https://soundcloud.com/oliver-arson). 
 
