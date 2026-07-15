@@ -2,6 +2,10 @@
 <img width="400" height="650" alt="Letter" src="https://github.com/user-attachments/assets/a89ab92a-2079-4862-a216-c13cf6dad6ed" />
 </p>
 
+
+Hope I presented a bearable amount of corniness
+
+
 Am mințit aparent am doar o melodie de a mea pentru că nu găseam acordurile nicăieri pentru altele ce ascultam eu (lame). Scuze. Dar acele melodii le poți găsi în acest [playlist](https://open.spotify.com/playlist/2Z3J1enHrp9WFlEG0PuN5B?si=2c8600c059444d7d)! All for u.
 
 Câteva dintre aceste melodii îmi doream să ți le fi cântat cât încă eram împreună pentru că știam că îți plac, dar n-am mai apucat. Așa că am vrut să o fac măcar acum. Finish what I started. Altele le-am cântat pentru că am aflat ulterior că îți plac. Iar altele pentru că m-am gândit că ți-ar plăcea să le auzi, și mă făceau să mă gândesc la tine.
@@ -12,9 +16,9 @@ Vreau să fiu transparent și onest cu tine și să-ți spun că ăsta nu este u
 Nu vreau să te simți presată să răspunzi în vreun fel, sau să răspunzi deloc, voiam doar să-ți arăt că te văd și te aud în sfârșit. I used to be dismissive of what you liked and I regret that I was such a prick, and I've started stepping back from those ways of mine now.
 Îmi place să mă gândesc la acest proiect ca un mic gift să zicem de la mine pentru tine. Și îmi doresc doar ca poate să îl asculți într-o zi și poate să te și încânte. Cine știe...
 
-Și nu vreau să iei nimic altceva din toate astea decât că te voi iubi mereu foarte mult și că sunt foarte recunoscător că m-ai ales să-ți fiu alături atâta timp. Am învățat multe de la tine, inclusiv să cânt melodii foarte frumoase la chitară acum (dar asta mai mult indirect prin tine). Thank you. Îmi vei lipsi.
+Și nu vreau să iei nimic altceva din toate astea decât că te voi iubi mereu foarte mult și că sunt foarte recunoscător că m-ai ales la un moment dat să-ți fiu alături atâta timp. Am învățat multe de la tine, inclusiv să cânt melodii foarte frumoase la chitară acum (dar asta mai mult indirect prin tine). Thank you. Îmi vei lipsi.
 
-Am vrut cu acest proiect doar să pun undeva what I've been feeling, pentru că mă presa să tot țin în mine. În același timp, voiam să imortalizez cum m-ai inspirat tu și tot ce a fost între noi, pentru că n-am mai cântat de vreo doi ani. A lot of love in my heart for you. Iar acest proiect l-am terminat într-o seara. 9 melodii, până la 4 dimineața (celelalte le-am terminat cateva zile înainte). Pentru invisible string am și învățat FL studio că nu puteam deloc s-o cânt, însă îmi doream de cand mi-ai arătat-o s-o fac, așa că a trebuit neapărat să găsesc cumva s-o înregistrez, and I did! I will forever admire you greatly.
+În final, ca să concluzionez, prin acest proiect voiam să imortalizez cum m-ai inspirat tu și tot ce a fost între noi, pentru că n-am mai cântat de vreo doi ani. A lot of love in my heart for you. Iar acest proiect l-am terminat într-o seara. 9 melodii, până la 4 dimineața (celelalte le-am terminat cateva zile înainte). Pentru invisible string am și învățat FL studio că nu puteam deloc s-o cânt, însă îmi doream de cand mi-ai arătat-o s-o fac, așa că a trebuit neapărat să găsesc cumva s-o înregistrez, and I did! I will forever admire you greatly.
 
 
 Am și câteva [melodii filmate](https://youtube.com/playlist?list=PLIyjDttsLiEE&si=BAIiY2f7p9UKVF2B) right after our break up, if you want.
