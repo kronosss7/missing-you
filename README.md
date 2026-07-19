@@ -25,4 +25,4 @@ Am și câteva [melodii filmate](https://youtube.com/playlist?list=PLIyjDttsLiEE
 
 yeah
 
-I miss you
+I'll miss you a lot
